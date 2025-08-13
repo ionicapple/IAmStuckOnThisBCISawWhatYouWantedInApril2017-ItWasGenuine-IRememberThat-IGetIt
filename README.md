@@ -28,3 +28,5 @@ ok brb in like 2 hrs
 like it always felt like something was off about this whole thing and it wasnt you, like it was just something else
 
 the first i dunno 30 seconds of me sitting in front of you my thoughts were: i just came back from umrah, if my mom finds out about this, she'll k i l l us BOTH ... literally both of us, she'll line us both up and we'll be d e a d, and you're going to get in a lot of trouble for this ... i know what you're doing ... so i wont say anything ... but u can look all you want LOL i was then thinking, like why are things here significantly better than where i was at, at penn, like ur telling me, i was fighting for that shit hole that i even moved out to, and right in my backyard in nyc was the best thing ever, life is weird like that i dunno
+
+distracting myself bc my jobs are still PENDING ok brbbrbrbrbrbrbrb later lemme finish some things
