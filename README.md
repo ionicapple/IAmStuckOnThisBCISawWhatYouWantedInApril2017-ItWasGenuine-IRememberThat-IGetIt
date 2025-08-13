@@ -14,3 +14,7 @@ i didnt say it in the voice note but i wanted him to hear it (oh i know), but he
 the thought/intuition that i had in my head summer 2017 was "something really bad happened" -- thats why i believe this whole thing
 
 i wasnt thinking of penn at all tho bc i wasnt there anymore! i returned everything in feb 2017 so like that would be crazy if i was thinking of those losers in like june 2017 in new jersey ... right
+
+everybody around me (except my dad who said "i think you **want** to call him") said dont call you bc u didnt pick up my brother's calls (4 calls) and i was like ... theres something going on here, why are they looking at my CV (bc the link was on my CV only) and it said nyc
+
+so anyway, i dont need proof to know whats going on/what happened, i get it (brb in a couple of hrs)
