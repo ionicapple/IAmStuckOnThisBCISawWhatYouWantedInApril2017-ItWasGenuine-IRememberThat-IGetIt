@@ -24,3 +24,5 @@ i didnt know about the phd program until u told me about it on the phone, i swea
 i saw this white trash loser crash out when i was asking him to write LORs in fall 2018 on twitter and my intuiton kept saying, its signal, its not noise, its about me, hes jealous/envious that im applying to competitive programs
 
 ok brb in like 2 hrs
+
+like it always felt like something was off about this whole thing and it wasnt you, like it was just something else
