@@ -7,3 +7,5 @@ that summer 2017, my windshield on my car exploded, bc the guy who was trimming 
 and then when i would write to u, 2018-2019 i was like SOMEONE is keeping u from seeing me, i dunno who but im going to figure it out, i had to figure it out bc it was personal ... i figured who ever it was, wanted to attack me personally, not professionally (tho its both), but at the personal level that what i knew
 
 thats why i believe this https://en.wikipedia.org/w/index.php?title=Jason_H._Moore&action=history all the updates, i believe it for what it is, 100% its in response to us meeting, everything
+
+the thought/intuition that i had in my head summer 2017 was "something really bad happened" -- thats why i believe this whole thing
