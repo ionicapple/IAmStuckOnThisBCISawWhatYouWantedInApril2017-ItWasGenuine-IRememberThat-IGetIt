@@ -31,4 +31,4 @@ the first i dunno 30 seconds of me sitting in front of you my thoughts were: i j
 
 distracting myself bc my jobs are still PENDING ok brbbrbrbrbrbrbrb later lemme finish some things busy again brbrbrbrb
 
-
+runnninggg the jobs are runningg omg the entire dayyyyyyyyyy sooo tomorrow is output dayyyy
