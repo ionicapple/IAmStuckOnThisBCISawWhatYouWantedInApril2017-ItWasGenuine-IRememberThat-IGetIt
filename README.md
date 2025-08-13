@@ -15,6 +15,6 @@ the thought/intuition that i had in my head summer 2017 was "something really ba
 
 i wasnt thinking of penn at all tho bc i wasnt there anymore! i returned everything in feb 2017 so like that would be crazy if i was thinking of those losers in like june 2017 in new jersey ... right
 
-everybody around me (except my dad who said "i think you **want** to call him") said dont call you bc u didnt pick up my brother's calls (4 calls) and i was like ... theres something going on here, why are they looking at my CV (bc the link was on my CV only) and it said nyc
+everybody around me (except my dad who said "i think you **want** to call him") said dont call you bc u didnt pick up my brother's calls (4 calls) and i was like ... theres something going on here, why are they looking at my CV (bc the link was on my CV only) and it said nyc .. oh thats a link to whenever someone clicks on my google scholar, i was like why are they doing that so interesting
 
 so anyway, i dont need proof to know whats going on/what happened, i get it (brb in a couple of hrs)
