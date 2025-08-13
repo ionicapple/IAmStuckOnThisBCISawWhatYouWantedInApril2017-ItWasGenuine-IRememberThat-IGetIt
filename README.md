@@ -32,3 +32,5 @@ the first i dunno 30 seconds of me sitting in front of you my thoughts were: i j
 distracting myself bc my jobs are still PENDING ok brbbrbrbrbrbrbrb later lemme finish some things busy again brbrbrbrb
 
 runnninggg the jobs are runningg omg the entire dayyyyyyyyyy sooo tomorrow is output dayyyy
+
+oh yeah i was in my apartment in philly, i dunno may 2017 or something, i woke up one night and i was in the kitchen, alone maybe this was like 1 am or something, and i just had this like extreme extreme feeling that just something bad happened and i didnt know what it was like something bad was happening ... i told my mom about it and she said maybe i was stressed out bc of the moving, see i was right about all this
