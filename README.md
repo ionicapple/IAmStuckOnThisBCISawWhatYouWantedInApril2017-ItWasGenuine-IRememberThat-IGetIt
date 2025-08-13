@@ -8,6 +8,9 @@ and then when i would write to u, 2018-2019 i was like SOMEONE is keeping u from
 
 thats why i believe this https://en.wikipedia.org/w/index.php?title=Jason_H._Moore&action=history all the updates, i believe it for what it is, 100% its in response to us meeting, everything -- and that shows you the epitome of white trash in this country, petty, average intelligence, all talk, will do the craziest shit over nothing personal, pure and complete white trash, all this over a resignation and two ... kids ... meeting 
 
+i didnt say it in the voice note but i wanted him to hear it (oh i know), but he use to walk around like he was the manager of some used car dealership in like south central pennsylvania, like the middle of nowhere, absolute white trash and he would say things like "that aint gonna happen" yuck, so hes been acting like it too
+
+
 the thought/intuition that i had in my head summer 2017 was "something really bad happened" -- thats why i believe this whole thing
 
 i wasnt thinking of penn at all tho bc i wasnt there anymore! i returned everything in feb 2017 so like that would be crazy if i was thinking of those losers in like june 2017 in new jersey ... right
