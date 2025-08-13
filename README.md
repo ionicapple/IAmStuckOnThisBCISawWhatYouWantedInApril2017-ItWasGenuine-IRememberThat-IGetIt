@@ -9,3 +9,5 @@ and then when i would write to u, 2018-2019 i was like SOMEONE is keeping u from
 thats why i believe this https://en.wikipedia.org/w/index.php?title=Jason_H._Moore&action=history all the updates, i believe it for what it is, 100% its in response to us meeting, everything
 
 the thought/intuition that i had in my head summer 2017 was "something really bad happened" -- thats why i believe this whole thing
+
+i wasnt thinking of penn at all tho bc i wasnt there anymore! i returned everything in feb 2017 so like that would be crazy if i was thinking of those losers in like june 2017 in new jersey ... right
