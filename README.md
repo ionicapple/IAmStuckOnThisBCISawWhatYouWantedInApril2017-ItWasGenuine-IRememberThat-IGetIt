@@ -18,3 +18,9 @@ i wasnt thinking of penn at all tho bc i wasnt there anymore! i returned everyth
 everybody around me (except my dad who said "i think you **want** to call him") said dont call you bc u didnt pick up my brother's calls (4 calls) and i was like ... theres something going on here, why are they looking at my CV (bc the link was on my CV only) and it said nyc .. oh thats a link to whenever someone clicks on my google scholar, i was like why are they doing that so interesting
 
 so anyway, i dont need proof to know whats going on/what happened, i get it (brb in a couple of hrs)
+
+i didnt know about the phd program until u told me about it on the phone, i swear i thought it was just a med school, i had no clue, but then like summer 2019, i didnt get in i was like why cant u respond to me, it HAS to be something bigger than than that ... but my intuition was when i moved to bethesda was to keep writing to you, when i was there, i was like, i feel like i should be in nyc i dunno, i cant explain it??
+
+i saw this white trash loser crash out when i was asking him to write LORs in fall 2018 on twitter and my intuiton kept saying, its signal, its not noise, its about me, hes jealous/envious that im applying to competitive programs
+
+ok brb in like 2 hrs
